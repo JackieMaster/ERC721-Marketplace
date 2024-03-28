@@ -16,9 +16,9 @@
 # `Disclamer` :
 
     - for educational purpose only 
-    - if you have a questions dm on Discord : Mowgli#7713
+    - if you have a questions dm on Discord : J@ckie
     - if you have a job for me or you need a help in a project 
         Contact : 
-            Telegram : @mowgli_9
-            Discord : Mowgli#7713
+            Telegram : StrongJackie
+            Discord : J@ckie
 
